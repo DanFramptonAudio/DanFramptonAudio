@@ -33,6 +33,7 @@ Selected experience includes:
 
 I am particularly interested in remote audio engineering and post-production work involving:
 
+- Music recording, mixing and mastering
 - Voice and spoken-word editing
 - Dialogue post-production
 - Audio quality control
